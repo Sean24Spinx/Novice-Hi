@@ -1,2 +1,0 @@
-# Novice-Hi
-Complete beginner/ 
